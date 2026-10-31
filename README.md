@@ -5,6 +5,14 @@ They're here. Let me know if you cannot access it.
 
 https://drive.google.com/drive/folders/1tmRCkuMTW4JnAdBCEY6KxrLfg91KKA5M
 
+If you like it, support me.
+
+PayPal:
+https://paypal.me/CaelinDarkGrace (paypal.me in Bing)
+
+Cash App:
+https://cash.app/$CaelinDarkGrace (cash.app in Bing)
+
 G9999 AND G7777 COMPLETION INDEX
 1550 Stephanus Greek New Testament with Strong's Numbers
 Generated 10-23-2026
