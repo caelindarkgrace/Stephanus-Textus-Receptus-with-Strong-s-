@@ -1,6 +1,10 @@
 # Stephanus-Textus-Receptus-with-Strong-s-
 1550 Stephanus Greek separated by verses with Strong’s numbers. 
 
+They're here. Let me know if you cannot access it.
+
+https://drive.google.com/drive/folders/1tmRCkuMTW4JnAdBCEY6KxrLfg91KKA5M
+
 G9999 AND G7777 COMPLETION INDEX
 1550 Stephanus Greek New Testament with Strong's Numbers
 Generated 10-23-2026
