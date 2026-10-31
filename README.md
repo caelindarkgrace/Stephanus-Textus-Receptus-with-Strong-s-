@@ -1,5 +1,5 @@
-# Stephanus-Textus-Receptus-with-Strong-s-
-1550 Stephanus Greek separated by verses with Strong’s numbers. 
+# STE PCE 
+1550 Stephanus Greek separated by verses with Strong’s numbers. Also the Pure Cambridge Edition too. The PCE is intrinsically tied to the STE.
 
 They're here. Let me know if you cannot access it.
 
